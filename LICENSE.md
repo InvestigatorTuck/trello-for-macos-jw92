@@ -1,4 +1,4 @@
-
+Trello for macOS updated Script: OCR scanning & tags offers the most advanced Trello for macOS script, with OCR scanning and tags. Ideal for professionals.
 
 
 
